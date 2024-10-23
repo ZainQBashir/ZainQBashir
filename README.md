@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Zain
+- 👀 I’m interested in mathematics
+- 🌱 I’m currently learning maths at queen marys 
+- 📫 How to reach me zainqbashir@outlook.com
+- ⚡ Fun fact: I have 3 siblings
